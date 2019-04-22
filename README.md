@@ -10,7 +10,7 @@ I also saw a high profitable startup that is super successful and the more succe
 
 I want to live and work from wherever I want, I want to be part of something that that is that big that I am not capable of pulling this off by myself. Also I wanted to use tech and leave a digital social impact. I always believed in collaboration and that many people can get anything done if they belief and trust. Everything I say or state or do is not about power, money, this is abot making a dream become reality. I have been searching long for such an opportunity (2003 to be honest) and I agreed with Frank on that once we have the option to sell license.rocks, we start doing it right away. This is our short cut, our better lifetime hack, lets grab it. I have been building for that the network that we can tap in right away. 
 
-I just a little concerned about fast exceution (as we really need that!) and our investors and our current startup, so we need to talk this still out.
+I just a little concerned about fast excution (as we really need that!) and our investors and our current startup, so we need to talk this still out.
 
 But don't worry and please trust me, I will do anything possible to make our dream company to become reality. Please understand that some things are super important and super exciting for me as well, but currently not that important. Also I rather see some parts evolve and other parts being executed asap as website, coding, marketing, fundraising and sales.
 
